@@ -1,16 +1,33 @@
-### Hi there 👋
+### Olá cambada, eu sou um estudante da Alura 🖤
 
-<!--
-**Githassi/Githassi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Para entrar em contato comigo
 
-Here are some ideas to get you started:
+@VictorKenai1
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Meu top 10 jogos favoritos são:
+
+1 Castlevania SoTN
+
+2 Onimusha 3 DEMON SIEGE
+
+3 Hollow Knight
+
+4 The Elder Scrolls V: Skyrim
+
+5 The Legends of Zelda
+
+6 Terrearia 
+
+7 Minecraft 
+
+8 God of War 3
+
+9 Resident Evil 2 Ps1
+
+10 Forza Horizon 2
+
+
+
+
+
+![](https://media.tenor.com/kodJNoo19_QAAAAM/chica-chica-rizz.gif)
